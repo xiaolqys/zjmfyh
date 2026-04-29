@@ -6,7 +6,7 @@
 **联系我：xiaolqy@qq.com
 QQ：2307858551**
 
-**欢凝文化云计算：cloud.huanculture.cn**
+**欢凝文化云计算提供全部技术支持：cloud.huanculture.cn**
 
 **QQ交流群：916575826**
 
